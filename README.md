@@ -7,6 +7,9 @@ List of things I love:
 2. Gaming
 3. Baseball
 
+So, I love Cars Because:
+
+**Physical Beauty**- *Cars don’t only take us from A to Z, but also provides  a chance to admire its model. We are excited by the prospect of buying used newer model cars.The beauty of a car never fades, especially when you’re the owner of it*.
 
 
 
